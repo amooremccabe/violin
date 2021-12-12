@@ -7,7 +7,6 @@ Daily recordings. Unless I forgot about this.
 
 I have no idea what I'm doing, and it's great. Except for Tuesdays, when I'm going to have a vague idea of what I'm doing, and it's going to be Ysaye. 
 
-
 I've been playing violin for around 7 years, but I can't play a single piece *well*. I'm not entirely sure how these things happen, but I think I have a general picture. 
 Up until around a year ago, I had a strange fear of conforming to what I anything as normal. This included music from after the beginning of the 20th century. And I felt a need to
 prove myself in the area of classical music by, somehow, skipping over all the violin repertoire in between watever I was doing at age 12 and the hardest piece that had 
