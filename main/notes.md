@@ -1,3 +1,5 @@
+12 27 21 - First time with a loop thing. I forgot to record as I was putting the loop together, so I had to play back the pieces later, which didn’t work well (especially at end). 
+
 12 19 21 - It’s terrible, but it may be the best one yet. I’m not going to hold on to any illusions of consistency, yet.
 
 12 16 21 - I’m off to a terrible start in terms of consistency. Oh well. Everything after 2:10’s pretty nice. 3:48 especially. Recording is terrible b/c of metal practice mute though. Probably no recording uploaded tommorow, but I’ll have Friday and Saturday uploaded in two days.  
