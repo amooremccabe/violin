@@ -1,4 +1,4 @@
-12 27 21 - First time with a loop thing. I forgot to record as I was putting the loop together, so I had to play back the pieces later, which didn’t work well (especially at end). 
+12 27 21 - First time with a loop thing. I forgot to record as I was putting the loop together, so I had to play back the pieces later, which didn’t work well (especially at end). My rhythm is also pretty bad, so things sound not crisp.
 
 12 19 21 - It’s terrible, but it may be the best one yet. I’m not going to hold on to any illusions of consistency, yet.
 
