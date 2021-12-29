@@ -1,3 +1,5 @@
+12 28 21 - (Welcome to the first Non-Ysaye Ysaye Tuesday!) Another loop. I prefer this one, but the tin foil sounds (my loop station is a makey makey) need to go.
+
 12 27 21 - First time with a loop thing. I forgot to record as I was putting the loop together, so I had to play back the pieces later, which didn’t work well (especially at end). My rhythm is also pretty bad, so things sound not crisp.
 
 12 19 21 - It’s terrible, but it may be the best one yet. I’m not going to hold on to any illusions of consistency, yet.
