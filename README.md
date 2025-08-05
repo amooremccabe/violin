@@ -1,3 +1,5 @@
+oh god these are old and terrible
+
 # violin
 Daily recordings. Unless I forgot about this.
 
